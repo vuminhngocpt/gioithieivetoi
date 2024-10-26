@@ -11,4 +11,7 @@
   -tôi mới chụp và không phô tô sôp 👨🏻‍💻
   
 ### Bạn Bè Và Người Thân Qua Thời Gian 
+[![D5-F8902-D-23-ED-41-E6-8901-122-FC52-D70-E8.jpg](https://i.postimg.cc/GhfQwKzL/D5-F8902-D-23-ED-41-E6-8901-122-FC52-D70-E8.jpg)](https://postimg.cc/gnvR3vfQ)
+
+
 
