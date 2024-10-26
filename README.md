@@ -12,17 +12,3 @@
   
 ### Bạn Bè Và Người Thân Qua Thời Gian 
 
-   <img src="https://i.postimg.cc/rzR5w6g8/2-FA06837-7-C21-4060-A466-D49-A07-D985-C9.jpg">
-   
-   <img src="https://i.postimg.cc/qzfytmZ2/301-DBF76-5889-4-E2-F-B370-4-CC766-A59-A43.jpg">
-
-<img src="link_anh_cua_ban">
-
-[url=https://postimg.cc/HrdMzrmx][img]https://i.postimg.cc/HrdMzrmx/3-D71650-A-C730-437-F-8190-D2-FDFB1-DA7-F6.jpg[/img][/url]
-
-[url=https://postimg.cc/xNmmxHqk][img]https://i.postimg.cc/xNmmxHqk/64-E23-FE7-45-D0-4237-AE82-716-C5-EC30-CF3.jpg[/img][/url]
-
-[url=https://postimg.cc/gnvR3vfQ][img]https://i.postimg.cc/gnvR3vfQ/D5-F8902-D-23-ED-41-E6-8901-122-FC52-D70-E8.jpg[/img][/url]
-
-[url=https://postimg.cc/bDWb9LYc][img]https://i.postimg.cc/bDWb9LYc/F940-EC7-A-AC9-C-4-A5-C-A044-7-B7396-DD24-DA.jpg[/img][/url]
-- còn nhiều nhưng tôi không up 
