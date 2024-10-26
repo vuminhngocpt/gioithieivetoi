@@ -14,9 +14,9 @@
 
    <img src="https://i.postimg.cc/rzR5w6g8/2-FA06837-7-C21-4060-A466-D49-A07-D985-C9.jpg">
    
-    <img src="link_anh_cua_ban">
+   <img src="https://i.postimg.cc/qzfytmZ2/301-DBF76-5889-4-E2-F-B370-4-CC766-A59-A43.jpg">
 
-[url=https://postimg.cc/qzfytmZ2][img]https://i.postimg.cc/qzfytmZ2/301-DBF76-5889-4-E2-F-B370-4-CC766-A59-A43.jpg[/img][/url]
+<img src="link_anh_cua_ban">
 
 [url=https://postimg.cc/HrdMzrmx][img]https://i.postimg.cc/HrdMzrmx/3-D71650-A-C730-437-F-8190-D2-FDFB1-DA7-F6.jpg[/img][/url]
 
