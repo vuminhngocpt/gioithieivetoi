@@ -12,6 +12,7 @@
   
 ### Bạn Bè Và Người Thân Qua Thời Gian 
 [![D5-F8902-D-23-ED-41-E6-8901-122-FC52-D70-E8.jpg](https://i.postimg.cc/GhfQwKzL/D5-F8902-D-23-ED-41-E6-8901-122-FC52-D70-E8.jpg)](https://postimg.cc/gnvR3vfQ)
+[![3-D71650-A-C730-437-F-8190-D2-FDFB1-DA7-F6.jpg](https://i.postimg.cc/y8STVRrF/3-D71650-A-C730-437-F-8190-D2-FDFB1-DA7-F6.jpg)](https://postimg.cc/HrdMzrmx)
 
 
 
