@@ -10,8 +10,11 @@
   [![56-AC7026-6-A62-4-E55-95-D7-56-AEDBAC2-E93.jpg](https://i.postimg.cc/VNh1X3Fy/56-AC7026-6-A62-4-E55-95-D7-56-AEDBAC2-E93.jpg)](https://postimg.cc/DW1tTpD5)
   -tôi mới chụp và không phô tô sôp 👨🏻‍💻
   
-### Bạn Bè Và Người Thân Qua Thời Gian
-  [url=https://postimg.cc/rzR5w6g8][img]https://i.postimg.cc/rzR5w6g8/2-FA06837-7-C21-4060-A466-D49-A07-D985-C9.jpg[/img][/url]
+### Bạn Bè Và Người Thân Qua Thời Gian 
+
+   <img src="https://i.postimg.cc/rzR5w6g8/2-FA06837-7-C21-4060-A466-D49-A07-D985-C9.jpg">
+   
+    <img src="link_anh_cua_ban">
 
 [url=https://postimg.cc/qzfytmZ2][img]https://i.postimg.cc/qzfytmZ2/301-DBF76-5889-4-E2-F-B370-4-CC766-A59-A43.jpg[/img][/url]
 
