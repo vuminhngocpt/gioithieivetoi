@@ -4,6 +4,8 @@
 - 
   #### tôi bắt đầu viết ...✍️
 <img src="https://i.postimg.cc/vBCCKkvn/F6-DDA1-E4-8-E95-44-E2-B003-F3390-ED61418.jpg">
- - đây là hình ảnh tôi đang viết bài trên này ✍️
+ - đây là hình ảnh tôi đang viết bài trên này ✍
 
-   đang tải ...
+ ### Tôi Hiện Tại Nhìn Như Thế Nào ?
+  [![56-AC7026-6-A62-4-E55-95-D7-56-AEDBAC2-E93.jpg](https://i.postimg.cc/VNh1X3Fy/56-AC7026-6-A62-4-E55-95-D7-56-AEDBAC2-E93.jpg)](https://postimg.cc/DW1tTpD5)
+  
