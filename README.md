@@ -8,4 +8,7 @@
 
  ### Tôi Hiện Tại Nhìn Như Thế Nào ?
   [![56-AC7026-6-A62-4-E55-95-D7-56-AEDBAC2-E93.jpg](https://i.postimg.cc/VNh1X3Fy/56-AC7026-6-A62-4-E55-95-D7-56-AEDBAC2-E93.jpg)](https://postimg.cc/DW1tTpD5)
+  -tôi mới chụp và không phô tô sôp 👨🏻‍💻
+  
+### Bạn Bè Và Người Thân Qua Thời Gian
   
