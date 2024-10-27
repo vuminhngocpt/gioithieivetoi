@@ -17,7 +17,7 @@
 [![F940-EC7-A-AC9-C-4-A5-C-A044-7-B7396-DD24-DA.jpg](https://i.postimg.cc/rsFJcYvm/F940-EC7-A-AC9-C-4-A5-C-A044-7-B7396-DD24-DA.jpg)](https://postimg.cc/bDWb9LYc)
  - còn nhiều ... mình không đăng ... google Ai ©
  - 
-### Hôm Nay Là Ngày Tồi Tệ 💥
-- Thật sự là như vậy mình chỉ là người bình thường cũng như bao người khác nhưng sự đối đãi của gia đình quá bất công với mình . tại sao lại như vậy ? tôi không thể lôi Bố và Mẹ ra để nói xấu vì lương tâm không cho phép đúng phải thế không các bạn ? .[mục này đôi để đây chưa viết về họ ](data) .thật sự tôi không biết phải viết gì về họ tôi đúng là không ra gì khi viết mấy câu này tâm trạng tôi không được tốt lắm , tôi định lôi truyện nhà tôi cho các bạn xem nhưng ...
+### 💥 Gia Đình Của Tôi Thật Tệ ...
+- Thật sự là như vậy mình chỉ là người bình thường cũng như bao người khác nhưng sự đối đãi của gia đình quá bất công với mình . tại sao lại như vậy ? tôi không thể lôi Bố và Mẹ ra để nói xấu vì lương tâm không cho phép đúng phải thế không các bạn ? .[mục này tôi để đây chưa viết về họ ](data) .thật sự tôi không biết phải viết gì về họ tôi đúng là không ra gì khi viết mấy câu này tâm trạng tôi không được tốt lắm , tôi định lôi truyện nhà tôi cho các bạn xem nhưng ...
 
  
