@@ -17,7 +17,5 @@
 [![F940-EC7-A-AC9-C-4-A5-C-A044-7-B7396-DD24-DA.jpg](https://i.postimg.cc/rsFJcYvm/F940-EC7-A-AC9-C-4-A5-C-A044-7-B7396-DD24-DA.jpg)](https://postimg.cc/bDWb9LYc)
  - còn nhiều ... mình không đăng ... google Ai ©
  - 
-### 💥 Gia Đình Của Tôi Thật Tệ ...
-- Thật sự là như vậy mình chỉ là người bình thường cũng như bao người khác sự đối đãi của gia đình quá bất công với mình . tại sao lại như vậy ? tôi không thể lôi XX và XX ra để nói xấu vì lương tâm không cho phép đúng phải thế không các bạn ? .[mục này tôi để đây chưa viết về họ ](data) .thật sự tôi không biết phải viết gì về họ tôi đúng là không ra gì khi viết mấy câu này tâm trạng tôi không được tốt lắm , tôi định lôi truyện nhà tôi cho các bạn xem nhưng ... thật sự tôi thấy họ nhiều lúc không bằng người XX 
-
- 
+### 💥 Gia Đình Của Tôi Quá Tệ ...
+- tôi không biết phải nói sao nữa nhưng Bố và Mẹ và Anh ,Em của tôi thật lòng mà nói họ đã không cho tôi 1 chút động lực nào để sống tiếp , tất nhiên tôi cũng có người tốt muốn giúp đỡ tôi nhưng nói thật gia đình thì khá phức tạp tôi cũng biết khả năng của họ chính vì vậy có nhiều người giúp tôi nhưng tôi đành hazz ! . tôi có phải là người tệ đúng không ? chả ai lôi gia đình chê bai như tôi cả , thật lòng nếu có luật nhân quả tôi cũng chấp nhận . tôi những lúc tuyệt vọng đều nghĩ về gia đình và luôn không từ bỏ gia đình nhưng lúc cần gia đình thì ... thật sự họ lại cho tôi thêm sầu càng mệt mỏi hơn 
