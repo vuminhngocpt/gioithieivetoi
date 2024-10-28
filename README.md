@@ -22,3 +22,5 @@
 - chắc các bạn thấy kỳ nhưng đó là chia sẻ thật lòng của mình .
 [7-E15370-C-11-F7-4272-B5-CE-314-AB6-C5-C3-C6.jpg](https://postimg.cc/wty9TMQ8)
 đây là ảnh mình lúc gặp khó khăn nhờ gia đình không được phải bán đồ cá nhân để sinh hoạt 😕
+[![7-E15370-C-11-F7-4272-B5-CE-314-AB6-C5-C3-C6.jpg](https://i.postimg.cc/mrVkjFcD/7-E15370-C-11-F7-4272-B5-CE-314-AB6-C5-C3-C6.jpg)](https://postimg.cc/wty9TMQ8)
+
