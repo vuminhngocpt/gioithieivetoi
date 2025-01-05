@@ -1,4 +1,4 @@
-### Tôi Vẫn Đang Tiếp Tục Viết Và Chia Sẻ Do Tôi Có Một Mình Nên Viết Không Được Liền Mạnh , Xin Anh Chị Thông Cảm , Tôi Cam Kết Là Sự Thật Anh Chị Hãy Tự Kiểm Chứng Qua Người Thân Bạn Bè Và Nếu Có Thể Tôi Cho Phép Bạn .Tôi íT Học Vì Vậy Bạn Thấy Tôi Viết Hơi Khó Hiểu Xin Lỗi Nhiều ☺️
+### Tôi Vẫn Đang Tiếp Tục Viết Và Chia Sẻ Do Tôi Có Một Mình Nên Viết Không Được Liền Mạnh , Xin Anh Chị Thông Cảm , Tôi Cam Kết Là Sự Thật Anh Chị Hãy Tự Kiểm Chứng Qua Người Thân Bạn Bè Và Nếu Có Thể Tôi Cho Phép Bạn .Tôi íT Học Vì Vậy Bạn Thấy Tôi Viết Hơi Khó Hiểu Xin Lỗi Nhiều ☺️ 
 
 ### Tôi Cần Giúp Đỡ Gì Ở Hiện Tại ? 
  
