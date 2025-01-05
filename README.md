@@ -1,5 +1,8 @@
-## Tôi Vẫn Đang Tiếp Tục Viết Và Chia Sẻ Do Tôi Có Một Mình Nên Viết Không Được Liền Mạnh , Xin Anh Chị Thông Cảm , Tôi Cam Kết Là Sự Thật Anh Chị Hãy Tự Kiểm Chứng Qua Người Thân Bạn Bè Và Nếu Có Thể Tôi Cho Phép Bạn .Tôi íT Học Vì Vậy Bạn Thấy Tôi Viết Hơi Khó Hiểu Xin Lỗi Nhiều ☺️
+### Tôi Vẫn Đang Tiếp Tục Viết Và Chia Sẻ Do Tôi Có Một Mình Nên Viết Không Được Liền Mạnh , Xin Anh Chị Thông Cảm , Tôi Cam Kết Là Sự Thật Anh Chị Hãy Tự Kiểm Chứng Qua Người Thân Bạn Bè Và Nếu Có Thể Tôi Cho Phép Bạn .Tôi íT Học Vì Vậy Bạn Thấy Tôi Viết Hơi Khó Hiểu Xin Lỗi Nhiều ☺️
 
+### Tôi Cần Giúp Đỡ Gì Ở Hiện Tại ? 
+ 
+ - Hiện tại tôi rất muốn sự giúp đỡ của mọi người tìm cho tôi 1 người bên cạnh để cùng nhau vượt qua khó khăn , tiền thì cũng cần đấy ai mà không mê nhưng với tôi không phải là tất cả , tìm người phù hợp với tôi chứ không phải người dở nhé , vì hồi trước có người gi thiệu cho tôi người như vậy tôi rất hoan hỉ cảm ơn nhưng cũng phải phù hợp với hoàn cảnh của tôi nhé ☺️
 
 ### Những Thứ Đã Trải Qua ...
 
