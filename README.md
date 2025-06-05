@@ -12,6 +12,6 @@
 
 ## Tính Cách
 
-Mình thuộc team dễ gần, cực kỳ cởi mở và thích trò chuyện. Hay thẳng thắn quá .Nhưng nếu nói đến khoản 'tán gái' hay 'làm quen' với phái nữ thì mình lại... nhát như chuột! Độ nhát gái của mình có khi còn hơn cả mèo con thấy chuột ấy chứ. Chắc là do năng lượng từ trường của các bạn nữ quá mạnh, khiến mình bị 'tê liệt' nhẹ. Rất vui được gặp mọi người, và nếu thấy mình ngượng nghịu trước bạn nữ nào thì đừng cười vội nhé, đó là biểu hiện của sự 'chân thật' đấy!"
+Mình thuộc team dễ gần, cực kỳ cởi mở và thích trò chuyện, dài dòng văn tự lắm 😌. Hay thẳng thắn quá .Nhưng nếu nói đến khoản 'tán gái' hay 'làm quen' với phái nữ thì mình lại... nhát như chuột! Độ nhát gái của mình có khi còn hơn cả mèo con thấy chuột ấy chứ. Chắc là do năng lượng từ trường của các bạn nữ quá mạnh, khiến mình bị 'tê liệt' nhẹ. Rất vui được gặp mọi người, và nếu thấy mình ngượng nghịu trước bạn nữ nào thì đừng cười vội nhé, đó là biểu hiện của sự 'chân thật' đấy!"
 
        ©️ 2025 Vu Minh Ngoc
