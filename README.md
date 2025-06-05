@@ -8,7 +8,7 @@
 
 ## Giới Thiệu Qua 
 
-"Alo alo, mọi người ơi, mình là Vũ Minh Ngọc đây! Mình xin cam đoan không phải dân chuyên 'chém gió' hay nói lời hoa mỹ đâu, chỉ là một người thích cười và muốn lan tỏa niềm vui cho tất cả mọi người thôi. Mình tin rằng mọi khó khăn đều có thể 'bay màu' chỉ với một nụ cười và tinh thần nhẹ nhàng. À mà tiện thể, mình là boy Phú Thọ xịn 19 củ khoai rồi nha, hội chị em nào tuổi heo vàng 95 mà vẫn còn 'ế' thì 'bơi' vào đây kết nối ngay nhé! Rất mong được trò chuyện cùng các bạn!"
+"Alo alo, mọi người ơi, mình là Vũ Minh Ngọc đây! Mình xin cam đoan không phải dân chuyên 'chém gió' hay nói lời hoa mỹ đâu, chỉ là một người thích cười và muốn lan tỏa niềm vui cho tất cả mọi người thôi. Mình tin rằng mọi khó khăn đều có thể 'bay màu' chỉ với một nụ cười và tinh thần nhẹ nhàng. À mà tiện thể, mình là boy Phú Thọ xịn mới 15 tủi lần thứ 2 thui nha, hội chị em nào thích tuổi heo vàng 95 mà vẫn còn 'ế' thì 'bơi' vào đây kết nối ngay nhé! Rất mong được trò chuyện cùng các bạn!"
 
 
 
